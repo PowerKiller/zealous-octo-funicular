@@ -1,3 +1,2 @@
-# zealous-octo-funicular
-I DELETED ALL WINDOWS STUFF, ANY PROBLEMS!?
-WILL ADD STUFF, LATER, I AM TOO BUSY -.-
+#Remove the damn rage
+Bye.
